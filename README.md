@@ -73,12 +73,12 @@ ________ 0008888888__________
 
 
 
-#ROCKIGEPROGRAMMIERER
+#SCHLECHTESTEN PROGRAMMIERER DER WELT
  
  
  
  
  
- Haroon23 kann kein tetris spielen 
+Wir können kein tetris spielen 
 
   
