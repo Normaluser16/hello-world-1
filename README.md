@@ -79,6 +79,6 @@ ________ 0008888888__________
  
  
  
- Haroon23 kann kein tetris spielen und soll zurück nach pakistan
+ Haroon23 kann kein tetris spielen 
 
   
